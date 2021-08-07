@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pk-lykwater
+- 👋 Hi, I’m (praveenKumar)@pk-lykwater
 - 👀 I’m interested in Electronics and it's brain
 - 🌱 I’m currently learning everything possible
 - 📫 How to reach me ...
